@@ -6,7 +6,7 @@
 
 //   • [ Recode Bye > ZetsuboXygen777]
 /*   # AND↓
-   THANKS TO >
+   hi TO >
   XygenGod777( Watashi / 私 )
   Hw Mods Wa / Haikal (Base)
   Adiwajshing (Baileys)
